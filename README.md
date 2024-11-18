@@ -1,0 +1,1 @@
+Eu nme chamo Guilherme, tenho 16 anos, moro em Sertãozinho-SP, estudo na escola Dr. Antônio Furlan. Eu gosto de jogar, praticar esportes, gosto da minha namorada. Eu não gosto de ficar sem minha namorada, não gosto de ficar parado e ficar sem dinheiro.
